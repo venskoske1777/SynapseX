@@ -36,7 +36,7 @@
 
 ## 🔍 Tags
 
-`SynapseX tool`, `code integration utility`, `2025 desktop runtime`, `lightweight execution engine`, `modular interface system`, `sandbox-safe platform`, `next-gen performance tools`
+`SynapseX github`, `SynapseX 2025`, `SynapseX Download`, `SynapseX free`, `SynapseX Roblox`
 
 ---
 
